@@ -1,1 +1,0 @@
-# Navtcc-Exam-Task
